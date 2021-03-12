@@ -1,3 +1,3 @@
 # Perseverance Parachute Message
 
-[Video](parachute.webm)
+[Video](https://youtu.be/5QqbdrfHxWk)
